@@ -1,1 +1,0 @@
-# marincapan.github.io
